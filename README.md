@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ajay-3x3
+- 👋 Hi, I’m @ajay patel
 - 👀 I’m interested in innovating stuff
 - 🌱 I’m currently learning MBA in business analytics
 - 💞️ I’m looking to collaborate on project development and crazy gadgets
